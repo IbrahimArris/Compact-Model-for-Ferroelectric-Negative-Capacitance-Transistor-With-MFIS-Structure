@@ -1,0 +1,1 @@
+# Compact-Model-for-Ferroelectric-Negative-Capacitance-Transistor-With-MFIS-Structure
